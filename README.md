@@ -1,1 +1,1 @@
-# trabalho-2-s-rie
+# trabalho-2-série
